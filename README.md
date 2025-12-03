@@ -1,0 +1,1 @@
+This is my second attempt at this course. I took too long of a break from coding so I am starting over.
