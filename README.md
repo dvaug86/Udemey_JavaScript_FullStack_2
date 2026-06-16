@@ -1,1 +1,1 @@
-This is my second attempt at this course. I took too long of a break from coding so I am starting over.
+This is my third attempt at this course. I took too long of a break from coding so I am starting over. My aunt has given me a task so I'm going to work hard at this course. I plan on creating extra exercises to hone my skills further
